@@ -18,4 +18,4 @@ Focused on systems programming and low-level fundamentals.
 ---
 
 ### Let's connect
-[LinkedIn](https://linkedin.com/in/tuoprofilo) · flavia@email.com
+[LinkedIn](https://linkedin.com/in/flavia-aiello) · floskina808@gmail.com
